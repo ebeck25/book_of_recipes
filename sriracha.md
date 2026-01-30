@@ -1,1 +1,1 @@
-* 1 bottle branded sriracha of choice
+* 1 bottle blue fish sriracha
